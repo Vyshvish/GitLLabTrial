@@ -8,7 +8,7 @@ Internals are coming, externals dude!
 😴️ nidhe barthideeee
 😪️ i need a hand kerchief
 💩️ thattii 							
-🦋️ BUtTERFLYY  BUTTERFLY
+🦋️ BUTTERFLYY  BUTTERFLY
 🍗️ Belluli Kabab	one more one more anbeku
 
 oh nallaaaaaaa
